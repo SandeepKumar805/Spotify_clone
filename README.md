@@ -1,2 +1,2 @@
-# Developed by :- 
+# Developed by :~ 
 ~~Sandeep Kumar
